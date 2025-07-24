@@ -126,4 +126,5 @@ Looking to **buy a 6 port unmanaged industrial switch** for your plant or projec
 Connect with **VERSITRON**, your trusted partner for rugged fiber-based communication hardware since 1958.
 
 > **Buy Industrial Ethernet Switch** | **Fiber Optic Switch Supplier USA** | **Industrial Automation Networking**
+
 [Also browse Versitrons Rugged 6 Port Unmanaged Industrial Ethernet Switch with Fiber Uplink](https://www.versitron.com/collections/fiber-ethernet-unmanaged-switches)
